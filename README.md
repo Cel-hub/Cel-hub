@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Cel-hub, a graduating SHS student this year. I'm planning to take BS Nursing as my pre-med course in college.
+- 👀 I’m interested in reading books, manga, and manhwa. I also love watching series, movies, Korean dramas, murder/crime documentaries, and animes.
+- 💞️ Genres that I love are psychological thrillers, horror, romcom, mystery, crime, and self-help. 
